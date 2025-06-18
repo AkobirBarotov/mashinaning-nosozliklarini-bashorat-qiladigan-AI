@@ -1,0 +1,1 @@
+# mashinaning-nosozliklarini-bashorat-qiladigan-AI
